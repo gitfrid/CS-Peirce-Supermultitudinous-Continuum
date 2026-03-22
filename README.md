@@ -51,4 +51,4 @@ We have: the clear, tested boundary between Peirce’s ontology and the world of
 
 **This is the end of the numerical road.**
 
-— Gitfrid March 2026
+— Drifting March 2026
